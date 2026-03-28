@@ -4,9 +4,10 @@
 
 ---
 
-## Скриншот
 
-> **
+# Скриншот
+
+> #<img width="698" height="650" alt="Снимок экрана 2026-03-28 134227" src="https://github.com/user-attachments/assets/5ea006db-3469-4301-aff4-5e79decccdd3" />
 
 ---
 

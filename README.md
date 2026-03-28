@@ -4,6 +4,10 @@
 
 ---
 
+> [Открыть папку на Google Диске, видео-презентация](https://drive.google.com/drive/folders/1AuXrBz4Z0CqOxgeDugYrAY8lVg0Naojm)
+
+---
+
 
 # Скриншот
 
